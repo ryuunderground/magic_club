@@ -1,0 +1,2 @@
+# magic_club
+ magicclubkorea
